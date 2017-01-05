@@ -1,3 +1,7 @@
+---
+title: 10 Anime I watched in 2016
+layout: post
+---
 
 # 10 Anime I watched in 2016
 
@@ -63,11 +67,7 @@ This one is one of my latest watches. I love ***stuck-in-the-MMORPG-have-to-lead
 
 ![cover_kabaneri](https://myanimelist.cdn-dena.com/images/anime/12/79164.jpg)
 
-When I watched the promo of *Kabaneri* I was like *"This is just a **Shingeki no Kyoujin** ripoff"*.
-But *SNK* is such a robust anime, I thought I'd give *Kabaneri* a try. I was not disappointed.
-Before everything I just want to say this much, you make 10 ripoff of *SNK* I'll watch 10 of them.
-I love the mystery and thrill of *SNK* that much. Even though *Kabaneri* had too many similar elements
-to *SNK* there were some unique elements too. Like the visuals! I have to give it to *Kabaneri*, though produced by the same animation studio *Kabaneri* offers a more vivid color pallete than *SNK*. Where *SNK* was made , *Kabaneri* somewhat gives off more of a hopeful vibe. The original soundtrack is just mind blowing. I mean if I have to give **best soundtrack** in my this list, it'll definitely be *Kabaneri*. People often complain about the **second half of the series**, though I found it perfectly fine as human insecuity, greed, hatred, passion have more direct influence on the point of view of the storytelling, like how Ikoma asked princess *"whom are you going to point the gun at?"*. *Kabaneri* is not just about humanity surviving against the **Kabane** (*Zombies with heart of steel*), but it is also about human distrust and the paranoia how someone can get affected very eaily, which was not the case in *SNK*, so far at least.
+When I watched the promo of *Kabaneri* I was like *"This is just a **Shingeki no Kyoujin** ripoff"*. But *SNK* is such a robust anime, I thought I'd give *Kabaneri* a try. I was not disappointed. Before everything I just want to say this much, you make 10 ripoff of *SNK* I'll watch 10 of them. I love the mystery and thrill of *SNK* that much. Even though *Kabaneri* had many similar elements to *SNK*, there were some unique elements too, like visuals! I have to give it to *Kabaneri*, though produced by the same animation studio *Kabaneri* offers a more vivid color pallete than *SNK*. Where *SNK* was made dark, *Kabaneri* somewhat gives off more of a hopeful vibe. The original soundtrack is just mind blowing. I mean if I have to give **best soundtrack** in my this list, it'll definitely be *Kabaneri*. People often complain about the **second half of the series**, but I found it alright, as human insecuity, greed, hatred, passion have more direct influence on the point of view of the storytelling, like how Ikoma asked princess *"whom are you going to point the gun at?"*. *Kabaneri* is not just about humanity surviving against the **Kabane** (*Zombies with heart of steel*), but it is also about human distrust and the paranoia how someone can get affected very eaily, which was not the case in *SNK*, so far at least.
 
 ### Sequel/Prequel
 
