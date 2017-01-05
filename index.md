@@ -1,6 +1,5 @@
 ---
 title: 10 Anime I watched in 2016
-layout: post
 ---
 
 # 10 Anime I watched in 2016
