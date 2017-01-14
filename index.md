@@ -51,7 +51,7 @@ I noticed the popularity of Erased when it released. Since it scored pretty high
 
 ![cover_myheroac](https://myanimelist.cdn-dena.com/images/anime/10/78745.jpg)
 
-Watched One Punch Man? Want something similarly action packed and in a similar setting? Look no more. Boku no Hero Academia was one of the most enjoyable and fun series for me! It's art style is more comic but reminds me of OPM. The animation is very good. Heroes are born with Quirks. Our main character does not have any quirk *(heh.. talk about stereotype)*. Can he become a hero? After he meets the legendary hero All Might, his life changes forever. I don't think there are many who have not already watched this show and if you have not then you should watch right now. It's very newcomer friendly.
+Watched *One Punch Man*? Want something similarly action packed and in a similar setting? Look no more. *Boku no Hero Academia* was one of the most enjoyable and fun series for me! It's art style is more comic but reminds me of *OPM*. The animation is very good. **Heroes are born with Quirks**. Our main character does not have any quirk *(heh.. talk about stereotype)*. Can he become a hero? After he meets the legendary hero **All Might**, his life changes forever. I don't think there are many who have not already watched this show and if you have not then you should watch right now. It's very newcomer friendly.
 
 
 **Re:Zero kara Hajimeru Isekai Seikatsu**
