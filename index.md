@@ -36,6 +36,24 @@ The much awaited movie for me. After watching mostly shounen anime I was looking
 
 More information on the series order or the series in general can be found in the [monogatari subreddit](https://www.reddit.com/r/araragi/comments/253p64/the_orders_to_monogatari_condensed_version)
 
+
+## OVA
+
+### Sequel/Prequel
+
+**Yahari Ore no Seishun Love Comedy wa Machigatteiru. Zoku OVA**
+
+![cover_oregairuzokuova](https://myanimelist.cdn-dena.com/images/anime/3/83076.jpg)
+
+*Hachiman* is the closest character to portray my thoughts. When I'd see a scene and try to think about something which is not very trivial about the scene, like for example where *Hachiman* thinks to himself if he was born 10 years ago he would have married sensei, the mood set in there was not about him thinking that. But He did it anyway. These are kind of the little thoughts we do not give much value to. These are just trivial thoughts, shows skip these, maybe even think it's not appropriate to always show the trivial thoughts! Anyway I love *Oregairu* for that. It rips apart the norm of keeping trivial thoughts unheard. In some way I find it very close to the *Monogatari Series*, the complicated yet rational thoughts, simple irrational thougts, long sentences in a single breath. I just love it.
+
+**Nisekoi: OVA**
+
+![cover_nisekoi2ova](https://myanimelist.cdn-dena.com/images/anime/8/78149.jpg)
+
+**#teamchitoge.** Now that all the *Onodera* fans are gone, I love the series just because I love *Chitoge*. She's just too damn cute. And all the faces she makes! I think *Nisekoi* probably should win the **most-different-faces-of-the-same-character-award**. Coming to the OVA I was actually thinking there would be a 3rd season (fingers still crossed)! But I enjoyed just being able to spend more time with the comfortable characters after a long time! So thumbs up for this one!
+
+
 ## TV Series
 
 ### New
