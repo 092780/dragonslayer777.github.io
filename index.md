@@ -4,8 +4,7 @@ title: 10 Anime I watched in 2016
 
 # 10 Anime I watched in 2016
 
-Hello everyone!
-Today I'll talk about 10 anime, I watched, which were released in 2016. There are **movies**, **TV series** and **OVA** here. Also the respective sections are divided into ***new*** (fresh watch/first season) and ***sequel/prequel*** (needs to be watched in respective order). So let's get started.
+All of these anime were released in 2016. There are **movies**, **TV series** and **OVA** here. Also the respective sections are divided into ***new*** (fresh watch/first season) and ***sequel/prequel*** (needs to be watched in respective order). So let's get started.
 
 ## Movies
 
@@ -74,3 +73,12 @@ When I watched the promo of *Kabaneri* I was like *"This is just a **Shingeki no
 
 ![cover_shokugeki](https://myanimelist.cdn-dena.com/images/anime/8/79353.jpg)
 
+**FOODGASM:** Only one word can describe this amazing series. I actually did not have to wait for the second season of the series at all. When I picked up the series the 2nd season had already started airing. Do you cope with food when you are depressed? Watch this! Absolutely gorgeous animation lots colors are used in every frame and well, it is filled with delicious foods. It made me want to start cooking (though I sometimes cook really!), like a chef. This established cooking as an *Art*. All the names of spices and there explicit uses and origins, this is the real deal I'm telling you. I can not stress enough how much everyone should watch this series. The little touches of ecchi and plentiful comedy make a great garnish on the hot serving!
+  
+**Haikyuu: Karasuno vs Shiratorizawa**
+  
+![cover_haikyuu3](https://myanimelist.cdn-dena.com/images/anime/2/79231.jpg)
+
+Ending my list with probably my most **adrenaline filled watch of 2016**! Haikyuu is one of those shounen anime that never lets you down with a boring episode. The tension is always in the air. There is no telling when suddenly someone unnoticed from opponent team is going to shine just when you were feeling confident! I am in love with the series and already can not wait for season 4! Haikyuu means *volleyball* literally! I've often heard *Haikyuu* is one the most accurate sports anime out there. Though I personally have not much experience in volleyball, I could feel the hard work that goes into the game just to be able to play even 5 minutes in a real match! The struggle is very well shown in the series. This  was the 3rd season of *Haikyuu*. I recommend you start watching right now.
+
+#### Arigatou_
