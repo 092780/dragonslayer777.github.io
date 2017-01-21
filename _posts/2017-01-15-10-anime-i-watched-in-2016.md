@@ -1,6 +1,7 @@
 ---
 title: 10 Anime I watched in 2016
 layout: post
+author: dragonslayer777
 ---
 
 All of these anime were released in 2016. There are **movies**, **TV series** and **OVA** here. Also the respective sections are divided into ***new*** (fresh watch/first season) and ***sequel/prequel*** (needs to be watched in respective order). So let's get started.
@@ -96,6 +97,3 @@ When I watched the promo of *Kabaneri* I was like *"This is just a **Shingeki no
 ![cover_haikyuu3](https://myanimelist.cdn-dena.com/images/anime/2/79231.jpg)
 
 Ending my list with probably my most **adrenaline filled watch of 2016**! Haikyuu is one of those shounen anime that never lets you down with a boring episode. The tension is always in the air. There is no telling when suddenly someone unnoticed from opponent team is going to shine just when you were feeling confident! I am in love with the series and already can not wait for season 4! Haikyuu means *volleyball* literally! I've often heard *Haikyuu* is one the most accurate sports anime out there. Though I personally have not much experience in volleyball, I could feel the hard work that goes into the game just to be able to play even 5 minutes in a real match! The struggle is very well shown in the series. This  was the 3rd season of *Haikyuu*. I recommend you start watching right now.
-
-#### Arigatou_
-
